@@ -1,1 +1,0 @@
- utrkm imdvnk is
